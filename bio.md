@@ -7,3 +7,5 @@ Programming Background
 other things i enjoy doing
 
 more content
+
+this is the alternate bio
